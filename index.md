@@ -15,11 +15,12 @@ If I could I would be learning every day, becaus it is wonderful.
 * Business in general - awesome to build a sustainable business
 
 ## I have never booring
-* I read Team of Teams
-* Play with children
-* Learn from Github
-* Help wife with crypto investments
-* Watch Elon Musk
+* I read "Team of Teams" or "how to become somethig, just following 10 simple steps. 
+* Play with my children, grows to fast unfortunately
+* Learn from Github, what else do you need?
+* Help wife with crypto investments, she never remember passwords
+* Spend monay on coffee, yep - we import everything to Sweden
+* Watch Elon Musk, he is everywhere..
 
 With regards
 
