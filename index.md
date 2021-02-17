@@ -1,7 +1,7 @@
 ## Welcome to Frostes GitHub Page
 
-I'm curious young man andlove trying out new stuff.
-If I could I would be learning every day, becaus it is wonderful. 
+I'm curious young man and love trying out new stuff, getting older only the last year. 
+If I could I would be learning every day, because it is wonderful to get rid of old stuff.
 
 ## I'm very much into
 * Kitesurfing and ice skating (when we have ice on lakes in Sweden)
