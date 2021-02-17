@@ -1,15 +1,17 @@
 ## Welcome to Frostes GitHub Page
 
-I'm curious and love trying out new stuff
-Learning every day is wonderful 
+I'm curious young man andlove trying out new stuff.
+If I could I would be learning every day, becaus it is wonderful. 
 
 ## I'm very much into
-* SaaS
+* Kitesurfing and ice skating (when we have ice on lakes in Sweden)
+* SaaS 
 * Cloud
 * Software Development
 * Product Marketing /Management 
-* Partner Management
-* Sales Development
+* Partner Management and building eco-systems
+* Sales Development, partner and direct sales
+* Close a deal feels always great ... 
 * Business in general - awesome to build a sustainable business
 
 ## I have never booring
