@@ -1,3 +1,1 @@
-# magnusfroste.github.io
 
-jorå
