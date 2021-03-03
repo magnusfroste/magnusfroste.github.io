@@ -22,6 +22,9 @@ If I could I would be learning every day, because it is wonderful to get rid of 
 * Spend monay on coffee, yep - we import everything to Sweden
 * Watch Elon Musk, he is everywhere..
 
+## If I have booring I rather build this ...
+ * https://froste.netlify.app
+
 With regards
 
 // Froste
